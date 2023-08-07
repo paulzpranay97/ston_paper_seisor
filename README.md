@@ -1,0 +1,1 @@
+# ston_paper_seisor
